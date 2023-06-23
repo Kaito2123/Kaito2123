@@ -21,7 +21,7 @@
 
 - 💬 Ask me about **Something I KNOW**
 
-- 📫 How to reach me **leducthi9@gmail.com**
+- 📫 How to reach me **leminhtrieu978@gmail.com**
 
 - ⚡ Fun fact **Thanks for visiting**
 
