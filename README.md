@@ -17,7 +17,7 @@
 
 - 🔭 I’m currently working on **HCM CITY UNIVERSITY OF EDUCATION**
 
-- 👨‍💻 All of my projects are available at [https://github.com/Kaito2123?tab=repositories)
+- 👨‍💻 All of my projects are available at [https://github.com/Kaito2123?tab=repositories]
 
 - 💬 Ask me about **Something I KNOW**
 
